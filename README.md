@@ -1,1 +1,1 @@
-# casos-registrados-sarampión
+# Casos registrados sarampión 
