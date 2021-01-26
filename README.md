@@ -1,1 +1,1 @@
-# casos-registrados-sarampi-n
+# casos-registrados-sarampión
